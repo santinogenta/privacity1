@@ -1,0 +1,1 @@
+# privacity1 :   THIS APP DOES NOT COLLECT DATA
